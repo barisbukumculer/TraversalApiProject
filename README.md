@@ -1,0 +1,5 @@
+![1689101224274](https://github.com/barisbukumculer/TraversalApiProject/assets/126320079/ceaa5963-b52a-44eb-8533-3e0bf3d1909d)
+![1689101223070](https://github.com/barisbukumculer/TraversalApiProject/assets/126320079/edbb5dc8-9d64-4e31-b0c7-745c33a53808)
+![1689101223417](https://github.com/barisbukumculer/TraversalApiProject/assets/126320079/7d07b70d-211c-4dc9-98ca-2185526d3a8d)
+![1689101223185](https://github.com/barisbukumculer/TraversalApiProject/assets/126320079/0dd6d11b-d026-4f38-83fe-823c5665a493)
+![1689101223409](https://github.com/barisbukumculer/TraversalApiProject/assets/126320079/a0f8a9ef-cf9a-47bf-b32e-6d4173c27167)
